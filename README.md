@@ -21,5 +21,5 @@
 # Keep in mind
 
 - We rarely cook with meat
-- We east a mostly vegeratian diet
+- We east a mostly vegetarian diet
 - We don't have a lot of time to cook after work so our meal prep and cook time should be no more than 30 minutes
